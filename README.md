@@ -1,0 +1,1 @@
+# dizideki-elemanlar
